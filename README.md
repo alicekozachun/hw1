@@ -13,5 +13,5 @@
 > _При помощи фотокамеры я сохраняла мгновения жизни, потому что научилась ловить момент и останавливать время._
 
 ### Как можно связаться со мной?
-- [ссылка](https://vk.com/alice_kozachun18)
-- [ссылка](https://www.facebook.com/profile.php?id=100004483804950)
+- страница в Vk [ссылка](https://vk.com/alice_kozachun18) 
+- страница в Facebook [ссылка](https://www.facebook.com/profile.php?id=100004483804950)
