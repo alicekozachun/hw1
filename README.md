@@ -16,9 +16,9 @@
 
 
 ### Как можно связаться со мной?
-- страница в Vk [ссылка](https://vk.com/alice_kozachun18) 
-- страница в Facebook [ссылка](https://www.facebook.com/profile.php?id=100004483804950)
-- почта <alice.kozachun@mail.ru>
+1. страница в Vk [ссылка](https://vk.com/alice_kozachun18) 
+2. страница в Facebook [ссылка](https://www.facebook.com/profile.php?id=100004483804950)
+3. почта <alice.kozachun@mail.ru>
 
 Кроме этого, меня можно найти в институте, который находится на улице Старая Басманная, 21/4. Корпус выглядит примерно так:
 
